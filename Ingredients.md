@@ -1,0 +1,1 @@
+egg, milk, vanilla and butter or maple syrup
